@@ -51,7 +51,7 @@ Leasing and subleasing of construction equipment, scissor and crank lifts, crane
 
 - October 2011-September 2020
 9 years old
-IOOO "Bel-Balt "Casino" XO"
+IOOO "Bel-Balt" Casino XO
 Minsk
 Specialist in the organization of purchases
 accepting applications from departments;
